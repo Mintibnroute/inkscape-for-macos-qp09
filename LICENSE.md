@@ -1,4 +1,4 @@
-# 
+# professional Inkscape for macOS Template | grid systems + custom brushes offers the most advanced Inkscape for macOS template, with grid systems and custom brushes. Ideal for
 
 
 
